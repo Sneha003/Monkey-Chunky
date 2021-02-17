@@ -1,1 +1,0 @@
-it was a time of summer, when ants were working hard
